@@ -1,5 +1,4 @@
-![](https://i.pinimg.com/originals/57/88/8d/57888d81d6f81bf3a50320eb6e1f2969.jpg)
-[](/Users/nadiadomnina/Desktop/haribo.png)
+![](/Users/nadiadomnina/Desktop/haribo.png)
 
 # The Happy World of HARIBO
 *Haribo makes millions of gummies every day to ensure that everyone can experience our
