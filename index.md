@@ -1,8 +1,9 @@
 ![](https://i.pinimg.com/originals/57/88/8d/57888d81d6f81bf3a50320eb6e1f2969.jpg)
+[](/Users/nadiadomnina/Desktop/haribo.png)
 
 # The Happy World of HARIBO
 *Haribo makes millions of gummies every day to ensure that everyone can experience our
-happy world of Haribo at any times. But no matter how large-scale our operations may get, 
+happy world of Haribo at any time. But no matter how large-scale our operations may get, 
 we will always be dedicated to fulfilling the following standards with every individual treat.*
 
 **1. Every gummy is guaranteed to be of the highest quality**
