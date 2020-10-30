@@ -20,8 +20,7 @@ started with a single idea. That idea was sketched on paper and re sketched; mol
 remolded, until the shape was finally perfected. Every flavor that you love has been 
 carefully crafted to ensure deliciousness. Every iteration tested by our experts to
 maintain the iconic image of the haribo gummy that started it all.
-As a result, Haribo now has dozens of different products in a fun variety of shapes and favors that 
-bring joy to sugar-lovers all over the world.
+
 
 **3. ”Kids and grown ups love it so, the happy world of Haribo”**
 
@@ -29,3 +28,5 @@ Since the founding of our brand in 1920, Haribo has been a family-run business. 
 committed to inspiring moments of childlike happiness in children and adults alike. 
 In the dozens of different products that we distribute all over the world, there will always 
 be something for everyone to enjoy.
+
+[The World Of Haribo Website](https://www.haribo.com/en-us)
