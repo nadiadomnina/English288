@@ -1,4 +1,5 @@
 ![](https://i.pinimg.com/originals/57/88/8d/57888d81d6f81bf3a50320eb6e1f2969.jpg)
+![](https://www.vhv.rs/dpng/d/353-3533308_haribo-gummy-bears-logo-hd-png-download.png)
 
 # The Happy World of HARIBO
 *Haribo makes millions of gummies every day to ensure that everyone can experience our
