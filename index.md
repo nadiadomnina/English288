@@ -1,3 +1,5 @@
+e ![](https://res.cloudinary.com/simpleview/image/upload/v1573665480/clients/pleasantprairiewi/Haribo_Logo_Bear_ai_ref_9ac67ec8-faae-404f-a5d8-ce8e4139a993.jpg)
+
 # The Happy World of HARIBO
 *Haribo makes millions of gummies every day to ensure that everyone can experience our
 happy world of Haribo at any times. But no matter how large-scale our operations may get, 
